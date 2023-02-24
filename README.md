@@ -1,1 +1,1 @@
-i'm a high school junior with bad grades and supermegaautism
+i'm a high school junior with bad grades and way too many projects. i like machine learning and i like learning theory. i'm always up to figure out a new language or library or whatever because i like knowing how to assemble things, start to finish. 
